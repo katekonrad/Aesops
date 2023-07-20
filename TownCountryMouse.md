@@ -16,4 +16,4 @@ The Country Mouse stopped in the Town Mouse's den only long enough to pick up he
 
 
 
-Poverty with security is better than plenty in the midst of fear and uncertainty.
+>Poverty with security is better than plenty in the midst of fear and uncertainty.
