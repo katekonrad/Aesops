@@ -18,4 +18,4 @@ The Tortoise meanwhile kept going slowly but steadily, and, after a time, passed
 
 
 
-> The race is not always to the swift.
+> The race is not always to the swiftest.
